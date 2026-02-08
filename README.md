@@ -2,7 +2,6 @@
 
 ### philipp stinkt
 
-
 1. download the mods [here](https://github.com/philippstinkt/laminat-ron/releases/tag/laminat).
 
 2. extract the mod
@@ -13,6 +12,7 @@
 
 no crack. no no mercy. no stress. no suppression. [by SkebbZ](https://www.nexusmods.com/profile/SkebbZ/mods?gameId=4205)
 
+![philipp sollte mal duschen gehen](https://github.com/philippstinkt/laminat-ron/blob/main/philippstinkt.jpg "philipp stinkt!")
 ______
 
-p.s. Geh mal duschen, Philipp!
+p.s. geh mal duschen, philipp!
