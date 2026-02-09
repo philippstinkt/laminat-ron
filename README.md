@@ -10,7 +10,7 @@
 
 4. launch the game and enjoy!
 
-no crack. no no mercy. no stress. no suppression. [by SkebbZ](https://www.nexusmods.com/profile/SkebbZ/mods?gameId=4205)
+no crack. no mercy. no stress. no suppression. [by SkebbZ](https://www.nexusmods.com/profile/SkebbZ/mods?gameId=4205)
 
 ![philipp sollte mal duschen gehen](https://github.com/philippstinkt/laminat-ron/blob/main/philippstinkt.jpg "philipp stinkt!")
 ______
